@@ -1,5 +1,5 @@
 # 💫 About Me:
-Im a student who will soon be joining doing Btech with cse<br>Im currently learning graphic designing and editing<br>
+Im just a student who loves to build and break stuff<br>
 
 
 ## 🌐 Socials:
